@@ -5,3 +5,4 @@ Hi there 👋
 - 📫 How to reach me: https://www.linkedin.com/in/shifragoldberg/ 
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Furniture Fixer
+- Super awesome individual
